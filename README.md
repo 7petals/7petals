@@ -7,11 +7,19 @@ I may add other means to reach me in the future, but that's no guarantee.
 
 # A few things to know about me
 All I do is lawful good
+
 Remember gold as my favorite color
+
 Currently in love with flowers
+
 However I also love coding
+
 Likely to crack dark jokes
+
 Inherently bizarre
+
 New to many things, but
+
 Unwaivering when it comes to learning
+
 X_x
